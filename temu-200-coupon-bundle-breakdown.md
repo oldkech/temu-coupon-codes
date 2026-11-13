@@ -4,6 +4,8 @@
 
 ![Temu official offer page: $200 coupon bundle for new app users, code alh424092](images/temu-200-coupon-bundle-breakdown-official.jpg)
 
+Video (96 seconds): [Is the Temu $200 coupon bundle real? The 7 coupons explained](https://youtu.be/-ck2HU7a9UQ)
+
 ## The 7 coupons in the bundle
 
 | Coupon | How many | Minimum order | Best case discount |
