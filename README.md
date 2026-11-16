@@ -5,6 +5,7 @@
 ## Guides
 
 - [Temu $200 coupon bundle: the 7 coupons explained](temu-200-coupon-bundle-breakdown.md)
+- [Temu discount code 2026: what ALH424092 gives and where to enter it](temu-discount-code.md)
 - [Temu coupon code for existing customers](https://couponhubusa.com/temu-coupon-code-existing-users/)
 - [Temu coupon code not working: fixes](https://couponhubusa.com/temu-coupon-code-not-working/)
 - [Temu Black Friday 2026 (November 27)](https://couponhubusa.com/temu-black-friday-2026/)
